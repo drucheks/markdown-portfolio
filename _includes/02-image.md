@@ -1,1 +1,1 @@
-![Image of sergey](https://https://twitter.com/DruchekS/photo)
+![Image of sergey](https://www.google.com/search?q=drucheks&sxsrf=ALiCzsbX9IPFbsmAUn5z9ld0ADJFFHcQkA:1653577963812&source=lnms&tbm=isch&sa=X&ved=2ahUKEwjPvJD5uf33AhWrjokEHdPQCQAQ_AUoAnoECAIQBA&biw=1280&bih=569&dpr=1.5#imgrc=t6gL49lCrffJ_M)
